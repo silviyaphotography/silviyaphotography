@@ -1,0 +1,1 @@
+"The eye should learn to listen before it looks." "It's not enough to just own a camera. Everyone owns a camera. To be a photographer, you must understand, appreciate, and harness the power you hold!"
